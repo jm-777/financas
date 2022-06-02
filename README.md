@@ -1,0 +1,1 @@
+# Organizar a vida financeira ao longo do tempo para lidar com a relação entre despesas e o orçamento de maneira mais eficiente.
